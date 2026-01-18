@@ -17,6 +17,9 @@
 
 ☆ c + h / rp welcomed! <img width="25" height="25" alt="Screenshot_2026-01-06-05-19-49-560_com instagram android-edit-removebg-preview" src="https://github.com/user-attachments/assets/089ceb7e-32ff-4337-8d2d-d825b264538b" />
 
+
+<img width="300" height="300" alt="inbound5211135142930346255" src="https://github.com/user-attachments/assets/3432a04f-898d-4d7f-a60b-32904e238949" />
+
 <!--
 **TREVPHILIPS/TREVPHILIPS** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
