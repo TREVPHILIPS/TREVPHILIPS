@@ -1,4 +1,4 @@
-<img width="300" height="300" alt="inbound241598370815267711" src="https://github.com/user-attachments/assets/ecfc73c1-d141-4b53-a855-75b2d52d4a86" />
+<img width="100" height="100" alt="inbound3010317175363773623" src="https://github.com/user-attachments/assets/b487b8c7-d700-418d-9b62-71e019b75c1f" /> “ I'd rather suck cock than smoke weed. And I've done both. ”
 
 
 
@@ -11,6 +11,10 @@
 
 ★ 𝙶𝚃𝙰 𝚅 , 𝙷𝙾𝚄𝚂𝙴 𝙼𝙳 , 𝚃𝚆𝙳 
 
+ 
+<img width="100" height="100" alt="inbound9009609786586842074" src="https://github.com/user-attachments/assets/cd9b51ef-64f9-4a16-8042-1840c6509a80" />
+
+
 ─── ⋆⋅☆⋅⋆ ── 
 
 ᯓ★ polish, extraverted. 
@@ -20,7 +24,6 @@
 ☆ c + h / rp welcomed! <img width="25" height="25" alt="Screenshot_2026-01-06-05-19-49-560_com instagram android-edit-removebg-preview" src="https://github.com/user-attachments/assets/089ceb7e-32ff-4337-8d2d-d825b264538b" />
 
 
-<img width="300" height="300" alt="inbound5211135142930346255" src="https://github.com/user-attachments/assets/3432a04f-898d-4d7f-a60b-32904e238949" />
 
 <!--
 **TREVPHILIPS/TREVPHILIPS** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
