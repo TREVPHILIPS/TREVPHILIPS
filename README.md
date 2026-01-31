@@ -26,7 +26,7 @@
 
 <img width="300" height="300" alt="inbound8274538542641470846" src="https://github.com/user-attachments/assets/f3954005-5ade-4e8b-a695-c1f889548672" />
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31dwdv6yhxpq4wguxcf2je4iixwu&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=452022)](https://spotify-github-profile.kittinanx.com/api/view?uid=31dwdv6yhxpq4wguxcf2je4iixwu&redirect=true)
+
 <!--
 **TREVPHILIPS/TREVPHILIPS** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
