@@ -1,43 +1,40 @@
-<img width="100" height="100" alt="inbound3010317175363773623" src="https://github.com/user-attachments/assets/b487b8c7-d700-418d-9b62-71e019b75c1f" /> “ I'd rather suck cock than smoke weed. And I've done both. ”
+<img width="3072" height="1200" alt="inbound7623293972287588115" src="https://github.com/user-attachments/assets/3e1f3789-f465-40fc-b94b-08d3dac62460" />
+
+☆☆☆☆☆
+
+ＡＢＯＵＴ ＭＥ / ＩＮＦＯ !!
+
+ᯓ★ 𝖻𝖺𝗌𝗂𝖼 𝗂𝗇𝖿𝗈 :
+
+ＮＡＭＥ: 𝚃𝚁𝙴𝚅 .ᐟ
+
+𝚙𝚘𝚕𝚒𝚜𝚑, 𝚎𝚡𝚝𝚛𝚊𝚟𝚎𝚛𝚝𝚎𝚍, 
+𝚖𝚎𝚝𝚊𝚕𝚑𝚎𝚊𝚍, 𝚖𝚘𝚟𝚒𝚎 𝚏𝚛𝚎𝚊𝚔,
+𝚍𝚘𝚐 𝚎𝚗𝚝𝚑𝚞𝚜𝚒𝚊𝚜𝚝
+
+⌖ 𝖨 𝗁𝖾𝖺𝗏𝗂𝗅𝗒 𝗄𝗂𝗇 𝖳𝗋𝖾𝗏𝗈𝗋 𝖯𝗁𝗂𝗅𝗂𝗉𝗌 𝖿𝗋𝗈𝗆 𝖦𝖳𝖠 𝖵, 𝖨𝖶𝖢. 𝖨 𝗁𝖺𝗏𝖾 𝗆𝗒 𝗆𝗈𝗈𝖽𝗌 𝖺𝗇𝖽 𝗆𝗂𝗀𝗁𝗍 𝖼𝗈𝗆𝖾 𝗈𝖿𝖿 𝖺𝗌 𝗋𝗎𝖽𝖾 𝗌𝗈𝗆𝖾𝗍𝗂𝗆𝖾𝗌, 𝖻𝗎𝗍 𝖨 𝖽𝗈𝗇'𝗍 𝖻𝗂𝗍𝖾 𝖿𝗈𝗋 𝗆𝗈𝗌𝗍 𝗉𝖺𝗋𝗍!
+
+₊⊹ 𝗌𝗍𝗋𝖺𝗇𝗀𝖾𝗋𝗌, 𝖿𝗋𝖾𝖺𝗄𝗌 𝗂𝗇𝗍 𝗉𝗅𝗌! 𝖨 𝗅𝗈𝗏𝖾 𝖼𝗁𝖺𝗍𝗍𝗂𝗇𝗀 𝗐𝗂𝗍𝗁 𝗉𝖾𝗈𝗉𝗅𝖾, 𝖾𝗌𝗉𝖾𝖼𝗂𝖺𝗅𝗅𝗒 𝖺𝖻𝗈𝗎𝗍 𝗌𝗁𝖺𝗋𝖾𝖽 𝗂𝗇𝗍𝖾𝗋𝖾𝗌𝗍𝗌. 
+
+ˢᵗᵉᵛᵉⁿ'ˢ ᴼᵍᵍ ᴮⁱᵍᵍᵉˢᵗ ᶠᵃⁿ .ᐟ.ᐟ
+
+<img width="3072" height="3072" alt="inbound8701735225602579812" src="https://github.com/user-attachments/assets/d1c1aaaf-63a3-4125-b1a5-0ef452811d3c" />
+
+ＫＩＮＳ :
 
 
+<img width="100" height="100" alt="inbound8613327236214412853" src="https://github.com/user-attachments/assets/e45ab271-fb4d-4249-9eb4-f776910007f1" />
+₊⊹ 𝚃𝚛𝚎𝚟𝚘𝚛 𝙿𝚑𝚒𝚕𝚒𝚙𝚜 , 𝖺𝗌 𝗌𝗍𝖺𝗍𝖾𝖽 𝖻𝖾𝖿𝗈𝗋𝖾. 
+
+ᯓ★
+
+𝖲𝗂𝗆𝗈𝗇 (𝖳𝖶𝖣) , 𝖦𝗋𝖾𝗀𝗈𝗋𝗒 𝖧𝗈𝗎𝗌𝖾 ,  𝖤𝗋𝗂𝖼 𝖢𝖺𝗋𝗍𝗆𝖺𝗇 , 𝖲𝖾𝖺𝗇 𝖣𝗂𝗀𝗇𝖺𝗆 , 𝖲𝗍𝖾𝗏𝖾 𝖧𝖺𝗂𝗇𝖾𝗌 ,𝖡𝗎𝖽 (𝖫𝖾𝖺𝗍𝗁𝖾𝗋𝖿𝖺𝖼𝖾/𝖳𝖢𝖬) , 𝖬𝗎𝗋𝖽𝗈𝖼 𝖭𝗂𝖼𝖼𝖺𝗅𝗌
 
 
+ＦＡＮＤＯＭＳ : 
 
+✶⋆.˚ 𝗆𝖺𝗂𝗇 𝗈𝗇𝖾𝗌 𝖻𝖼 𝗍𝗁𝖾𝗋𝖾'𝗌 𝗍𝗈𝗈 𝗆𝖺𝗇𝗒
 
+𝖦𝖳𝖠 𝗏 , 𝗁𝗈𝗎𝗌𝖾 𝖬𝖣 , 𝖳𝖢𝖬 , 𝖳𝖶𝖣 , 𝗍𝗁𝖾 𝖽𝖾𝗉𝖺𝗋𝗍𝖾𝖽
 
-
-𝖬𝖠𝖨𝖭 𝖨𝖭𝖳𝖤𝖱𝖤𝖲𝖳𝖲 : 
-
-★ 𝙶𝚃𝙰 𝚅 , 𝙷𝙾𝚄𝚂𝙴 𝙼𝙳 , 𝚃𝚆𝙳 
-
- 
-<img width="100" height="100" alt="inbound9009609786586842074" src="https://github.com/user-attachments/assets/cd9b51ef-64f9-4a16-8042-1840c6509a80" />
-
-
-─── ⋆⋅☆⋅⋆ ── 
-
-ᯓ★ polish, extraverted. 
-
-✮⋆˙ STRANGERS AND FREAKS INT !! i love making new friends but be respectful. PEDOS, PRO SHIPS, DARK dni. 
-
-☆ c + h / rp welcomed! <img width="25" height="25" alt="Screenshot_2026-01-06-05-19-49-560_com instagram android-edit-removebg-preview" src="https://github.com/user-attachments/assets/089ceb7e-32ff-4337-8d2d-d825b264538b" />
-
-
-<img width="300" height="300" alt="inbound8274538542641470846" src="https://github.com/user-attachments/assets/f3954005-5ade-4e8b-a695-c1f889548672" />
-
-
-<!--
-**TREVPHILIPS/TREVPHILIPS** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<img width="3072" height="3072" alt="inbound6363690760412435461" src="https://github.com/user-attachments/assets/f8b658fe-2277-46ac-876f-9b90e40dc6f5" />
