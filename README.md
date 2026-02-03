@@ -25,7 +25,7 @@
 ＫＩＮＳ :
 
 
-<img width="100" height="100" alt="inbound8613327236214412853" src="https://github.com/user-attachments/assets/e45ab271-fb4d-4249-9eb4-f776910007f1" />
+<img width="50" height="50" alt="inbound8613327236214412853" src="https://github.com/user-attachments/assets/e45ab271-fb4d-4249-9eb4-f776910007f1" />
 ₊⊹ 𝚃𝚛𝚎𝚟𝚘𝚛 𝙿𝚑𝚒𝚕𝚒𝚙𝚜 , 𝖺𝗌 𝗌𝗍𝖺𝗍𝖾𝖽 𝖻𝖾𝖿𝗈𝗋𝖾. 
 
 ᯓ★
