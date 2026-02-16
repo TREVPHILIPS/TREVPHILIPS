@@ -37,7 +37,8 @@
 
 𝖲𝗂𝗆𝗈𝗇 (𝖳𝖶𝖣) , 𝖦𝗋𝖾𝗀𝗈𝗋𝗒 𝖧𝗈𝗎𝗌𝖾 ,  𝖤𝗋𝗂𝖼 𝖢𝖺𝗋𝗍𝗆𝖺𝗇 , 𝖲𝖾𝖺𝗇 𝖣𝗂𝗀𝗇𝖺𝗆 , 𝖲𝗍𝖾𝗏𝖾 𝖧𝖺𝗂𝗇𝖾𝗌 ,𝖡𝗎𝖽 (𝖫𝖾𝖺𝗍𝗁𝖾𝗋𝖿𝖺𝖼𝖾/𝖳𝖢𝖬) , 𝖬𝗎𝗋𝖽𝗈𝖼 𝖭𝗂𝖼𝖼𝖺𝗅𝗌
 
-<img width="300" height="300" alt="inbound2274198831014053788" src="https://github.com/user-attachments/assets/7cc88933-d374-4476-83c1-1632d984f058" />
+<img width="300" height="300" alt="inbound6597233298135446171" src="https://github.com/user-attachments/assets/35e9115f-6643-4922-9f3d-87c13e66bcb3" />
+
 
 
 ＦＡＮＤＯＭＳ : 
