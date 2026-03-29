@@ -1,15 +1,15 @@
-<img width="300" height="300" alt="inbound5172167256308484261" src="https://github.com/user-attachments/assets/b96f2eca-b2cd-4322-a517-6625f7db0297" />
+<img width="600" height="373" alt="inbound6336655000188032990" src="https://github.com/user-attachments/assets/9163fa59-18a1-4088-ab98-67dcbc09b924" />
+
 
 
 “ 𝙹𝚒𝚖𝚖𝚢, 𝚢𝚘𝚞 𝚊𝚛𝚎 𝚊𝚕𝚠𝚊𝚢𝚜 𝚍𝚘𝚠𝚗. ”
 
-☆☆☆☆☆
 
-ＡＢＯＵＴ ＭＥ / ＩＮＦＯ !!
 
-ᯓ★ 𝖻𝖺𝗌𝗂𝖼 𝗂𝗇𝖿𝗈 :
+   ＡＢＯＵＴ ＭＥ / ＩＮＦＯ !!
 
-ＮＡＭＥ: 𝚃𝚁𝙴𝚅 .ᐟ
+
+ＮＡＭＥ:      𝚃𝚁𝙴𝚅 .ᐟ
 
 𝚙𝚘𝚕𝚒𝚜𝚑, 𝚎𝚡𝚝𝚛𝚊𝚟𝚎𝚛𝚝𝚎𝚍, 
 𝚖𝚎𝚝𝚊𝚕𝚑𝚎𝚊𝚍, 𝚖𝚘𝚟𝚒𝚎 𝚏𝚛𝚎𝚊𝚔,
@@ -21,30 +21,14 @@
 
 ˢᵗᵉᵛᵉⁿ'ˢ ᴼᵍᵍ ᴮⁱᵍᵍᵉˢᵗ ᶠᵃⁿ .ᐟ.ᐟ
 
-<img width="300" height="300" alt="inbound3165428349586179865" src="https://github.com/user-attachments/assets/cbd278e2-7080-4510-8e56-db2a2e17d745" />
-
-
-☆☆☆☆☆
-
-ＫＩＮＳ :
-
-<img width="50" height="50" alt="inbound8382792971719444820" src="https://github.com/user-attachments/assets/08166f2c-e605-41f1-8846-f0aa9a1d254a" />
- 𝖩𝖨𝖬𝖬𝖸 𝖬𝖢𝖦𝖨𝖫𝖫 / 𝖲𝖠𝖴𝖫 𝖦𝖮𝖮𝖣𝖬𝖠𝖭 ! 
-
-
-₊⊹ 𝚃𝚛𝚎𝚟𝚘𝚛 𝙿𝚑𝚒𝚕𝚒𝚙𝚜 , 𝖺𝗌 𝗌𝗍𝖺𝗍𝖾𝖽 𝖻𝖾𝖿𝗈𝗋𝖾. 
-
-
-𝖲𝗂𝗆𝗈𝗇 (𝖳𝖶𝖣) , 𝖦𝗋𝖾𝗀𝗈𝗋𝗒 𝖧𝗈𝗎𝗌𝖾 ,  𝖤𝗋𝗂𝖼 𝖢𝖺𝗋𝗍𝗆𝖺𝗇 , 𝖲𝖾𝖺𝗇 𝖣𝗂𝗀𝗇𝖺𝗆 , 𝖲𝗍𝖾𝗏𝖾 𝖧𝖺𝗂𝗇𝖾𝗌 ,𝖡𝗎𝖽 (𝖫𝖾𝖺𝗍𝗁𝖾𝗋𝖿𝖺𝖼𝖾/𝖳𝖢𝖬) , 𝖬𝗎𝗋𝖽𝗈𝖼 𝖭𝗂𝖼𝖼𝖺𝗅𝗌
-
-<img width="300" height="300" alt="inbound6597233298135446171" src="https://github.com/user-attachments/assets/35e9115f-6643-4922-9f3d-87c13e66bcb3" />
+<img width="600" height="466" alt="inbound7315328246734586724" src="https://github.com/user-attachments/assets/74597111-c16a-4bf0-bc91-5cee823f3dda" />
 
 
 
-ＦＡＮＤＯＭＳ : 
 
-✶⋆.˚ 𝗆𝖺𝗂𝗇 𝗈𝗇𝖾𝗌 𝖻𝖼 𝗍𝗁𝖾𝗋𝖾'𝗌 𝗍𝗈𝗈 𝗆𝖺𝗇𝗒
 
-𝖦𝖳𝖠 𝗏 , 𝖻𝖾𝗍𝗍𝖾𝗋 𝖼𝖺𝗅𝗅 𝗌𝖺𝗎𝗅 , 𝗁𝗈𝗎𝗌𝖾 𝖬𝖣 , 𝖳𝖢𝖬 , 𝖳𝖶𝖣 , 𝗍𝗁𝖾 𝖽𝖾𝗉𝖺𝗋𝗍𝖾𝖽 
 
-<img width="4096" height="4096" alt="inbound6921929577402494574" src="https://github.com/user-attachments/assets/20788ff9-90b4-4b68-bbc8-922dc94885e7" />
+
+
+
+
