@@ -1,4 +1,5 @@
-<img width="600" height="373" alt="inbound6336655000188032990" src="https://github.com/user-attachments/assets/9163fa59-18a1-4088-ab98-67dcbc09b924" />
+<img width="600" height="403" alt="inbound9219975141307668752" src="https://github.com/user-attachments/assets/1fcdb978-f6fd-424a-9a05-f045b86cc54e" />
+
 
 
 
@@ -9,7 +10,7 @@
    ＡＢＯＵＴ ＭＥ / ＩＮＦＯ !!
 
 
-ＮＡＭＥ:      𝚃𝚁𝙴𝚅 .ᐟ
+ＮＡＭＥ:    <code style="color : name_red">𝚃𝚁𝙴𝚅 .ᐟ</code>
 
 𝚙𝚘𝚕𝚒𝚜𝚑, 𝚎𝚡𝚝𝚛𝚊𝚟𝚎𝚛𝚝𝚎𝚍, 
 𝚖𝚎𝚝𝚊𝚕𝚑𝚎𝚊𝚍, 𝚖𝚘𝚟𝚒𝚎 𝚏𝚛𝚎𝚊𝚔,
