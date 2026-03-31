@@ -24,7 +24,8 @@
 
 ˢᵗᵉᵛᵉⁿ'ˢ ᴼᵍᵍ ᴮⁱᵍᵍᵉˢᵗ ᶠᵃⁿ .ᐟ.ᐟ
 
-<img width="3072" height="3072" alt="inbound6915680897599001642" src="https://github.com/user-attachments/assets/7bf87b16-f285-45b9-b553-c3643349020a" />
+<img width="3072" height="3072" alt="inbound7052554621094412616" src="https://github.com/user-attachments/assets/0e27bab5-00a8-460c-9fb8-47ad8fffd7f8" />
+
 
 ＫＩＮＳ / interests
 
@@ -52,7 +53,8 @@
 
 𝖤𝖱𝖨𝖢 𝖢𝖠𝖱𝖳𝖬𝖠𝖭 
 
-<img width="4096" height="4096" alt="inbound660857047093310833" src="https://github.com/user-attachments/assets/2ceaa2c6-1444-473f-8870-a16e23360263" />
+<img width="3072" height="3072" alt="inbound477413091798466892" src="https://github.com/user-attachments/assets/1e4919c5-c3ba-46ed-b4d5-c713b6331c35" />
+
 
 
 
