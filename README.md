@@ -1,24 +1,47 @@
+  
+![](https://komarev.com/ghpvc/?username=TREVPHILIPS&color=7DDEC2&label=s'all+good,man!&style=flat-square)
+
 <p align="center">
- $\color{#C7C109}{❝ 𝚃𝚁𝙴𝚅 / 𝚂𝙰𝚄𝙻  ! ❞}$
+$\color{#C8E9E4}{ᡕᠵデᡁ᠊╾━&ensp;𝚃𝚁𝙴𝚅 / 𝚂𝙰𝚄𝙻&ensp;🃜🃚🃖🃁🂭🂺}$
+</p>
+
+<img width="3016" height="1998" alt="Untitled54_20260508075459" src="https://github.com/user-attachments/assets/753d9694-b0ba-45b6-b2e5-4429e31a7b0f" />
+
+<p align="center">
+$\color{#C8E9E4}{ 𝒑𝒐𝒍𝒊𝒔𝒉 &ensp;/ &ensp; 𝘦𝘹𝘵𝘳𝘢𝘷𝘦𝘳𝘵𝘦𝘥 }$
 </p>
 
 <p align="center">
-<img width="2340" height="1500" alt="inbound3161108255072630728" src="https://github.com/user-attachments/assets/ff9500d8-417d-453b-a1c9-7e581e576a54" />
-
+$\color{#7DDEC2}{𝙢𝙚𝙩𝙖𝙡𝙝𝙚𝙖𝙙 &ensp; / &ensp;𝐦𝐨𝐯𝐢𝐞 𝐟𝐫𝐞𝐚𝐤 }$
 </p>
-
-𝑝𝑜𝑙𝑖𝑠ℎ, 𝑒𝑥𝑡𝑟𝑎𝑣𝑒𝑟𝑡𝑒𝑑, 𝑚𝑜𝑣𝑖𝑒 𝑓𝑟𝑒𝑎𝑘, 𝑚𝑒𝑡𝑎𝑙ℎ𝑒𝑎𝑑
-
-𝗜 𝗵𝗲𝗮𝘃𝗶𝗹𝘆 𝗸𝗶𝗻 $\color{#CC462E}{ 𝗧𝗥𝗘𝗩𝗢𝗥  𝗣𝗛𝗜𝗟𝗜𝗣𝗦 }$ 𝗳𝗿𝗼𝗺 𝗚𝗧𝗔𝗩, 𝗜𝗪𝗖 𝗯𝘂𝘁 𝗶𝗻𝘁 𝗽𝗹𝘀! 𝗜 𝗵𝗮𝘃𝗲 𝗺𝘆 𝗺𝗼𝗼𝗱𝘀 𝗮𝗻𝗱 𝗺𝗶𝗴𝗵𝘁 𝗰𝗼𝗺𝗲 𝗼𝗳𝗳 𝗮𝘀 𝗿𝘂𝗱𝗲, 𝗯𝘂𝘁 𝗜 𝗱𝗼𝗻'𝘁 𝗯𝗶𝘁𝗲 𝗳𝗼𝗿 𝗺𝗼𝘀𝘁 𝗽𝗮𝗿𝘁.
-
-𝘴𝘵𝘳𝘢𝘯𝘨𝘦𝘳𝘴, 𝘧𝘳𝘦𝘢𝘬𝘴 𝘪𝘯𝘵 𝘱𝘭𝘴! 𝘐 𝘭𝘰𝘷𝘦 𝘤𝘩𝘢𝘵𝘵𝘪𝘯𝘨 𝘸𝘪𝘵𝘩 𝘱𝘦𝘰𝘱𝘭𝘦, 𝘦𝘴𝘱𝘦𝘤𝘪𝘢𝘭𝘭𝘺 𝘢𝘣𝘰𝘶𝘵 𝘴𝘩𝘢𝘳𝘦𝘥 𝘪𝘯𝘵𝘦𝘳𝘦𝘴𝘵𝘴. $\color{#CC462E}{𝘗𝘌𝘋𝘖𝘚}$, -15 𝘦𝘵𝘤 𝘦𝘵𝘤 𝘥𝘯𝘪.
-
-$\color{#C7C109}{𝙞𝙣𝙩𝙚𝙧𝙚𝙨𝙩𝙨:}$𝘣𝘳𝘦𝘢𝘬𝘪𝘯𝘨 𝘣𝘢𝘥, 𝘣𝘦𝘵𝘵𝘦𝘳 𝘤𝘢𝘭𝘭 𝘴𝘢𝘶𝘭, 𝘨𝘵𝘢𝘷, 𝘵𝘩𝘦 𝘸𝘢𝘭𝘬𝘪𝘯𝘨 𝘥𝘦𝘢𝘥, 𝘩𝘰𝘶𝘴𝘦 𝘮𝘥, 𝘵𝘩𝘦 𝘥𝘦𝘱𝘢𝘳𝘵𝘦𝘥, 𝘭𝘰𝘵𝘴 𝘰𝘧 𝘢𝘥𝘶𝘭𝘵 𝘤𝘢𝘳𝘵𝘰𝘰𝘯𝘴 𝘢𝘯𝘥 𝘮𝘶𝘤𝘩 𝘮𝘰𝘳𝘦.
-
-
-
-$\color{#C7C109}{𝙢𝙖𝙞𝙣 𝙠𝙞𝙣𝙨:}$ S̲a̲u̲l̲ G̲o̲o̲d̲m̲a̲n̲/J𝗂𝗆𝗆𝗒 𝖬𝖼𝖦𝗂𝗅𝗅, 𝖳𝗋𝖾𝗏𝗈𝗋 𝖯𝗁𝗂𝗅𝗂𝗉𝗌, 𝖫𝖺𝗅𝗈 𝖲𝖺𝗅𝖺𝗆𝖺𝗇𝖼𝖺, 𝖶𝖾𝗋𝗇𝖾𝗋 𝖹𝗂𝖾𝗀𝗅𝖾𝗋, 𝖲𝗂𝗆𝗈𝗇 (𝖳𝖶𝖣), 𝖤𝗋𝗂𝖼 𝖢𝖺𝗋𝗍𝗆𝖺𝗇.
 
 <p align="center">
-<img width="2340" height="1300" alt="inbound6764802368406136284" src="https://github.com/user-attachments/assets/cd304f2b-6d91-44a5-b0f2-f70466bd6781" />
+$\color{#3C90A0}{°˖➴𝐒𝐀𝐔𝐋&ensp;𝐆𝐎𝐎𝐃𝐌𝐀𝐍── .✦}$
 </p>
+
+<p align="center">
+$\color{#3C90A0}{𝖠𝖭𝖣}$
+</p>
+
+<p align="center">
+$\color{#3C90A0}{₊⊹𝚃𝚁𝙴𝚅𝙾𝚁&ensp;𝙿𝙷𝙸𝙻𝙸𝙿𝚂ˎˊ˗ }$
+</p>
+
+<p align="center">
+$\color{#3C90A0}{ ᴋɪɴɴɪᴇ .ᐟ}$
+</p>
+
+<p align="center">
+$\color{#C8E9E4}{𝘣𝘳𝘦𝘢𝘬𝘪𝘯𝘨&ensp;𝘣𝘢𝘥&ensp;𝘢𝘯𝘥&ensp;}$
+</p>
+
+<p align="center">
+$\color{#C8E9E4}{𝘣𝘦𝘵𝘵𝘦𝘳&ensp;𝘤𝘢𝘭𝘭&ensp;𝘴𝘢𝘶𝘭&ensp;𝘧𝘢𝘯 }$
+</p>
+
+<p align="center">
+$\color{#7DDEC2}{ᴍɪᴋᴇ&ensp;ᴇʜʀᴍᴀɴᴛʀᴀᴜᴛ&ensp;ʏᴜᴍᴇ&ensp;ᯓᡣ𐭩}$
+</p>
+
+
+more info on my [╰┈➤ˎˊ˗strawpage](https://starsinnewmexico.straw.page/).
