@@ -1,5 +1,5 @@
   
-![](https://komarev.com/ghpvc/?username=TREVPHILIPS&color=7DDEC2&label=s'all+good,man!&style=flat-square)
+&ensp;&ensp;&ensp;&ensp;&ensp;&ensp; &ensp; $\color{#C8E9E4}{𑣲⋆}$&ensp;&ensp; ![](https://komarev.com/ghpvc/?username=TREVPHILIPS&color=7DDEC2&label=s'all+good,man!&style=flat-square) &ensp;&ensp; $\color{#C8E9E4}{⋆˚࿔}$
 
 <p align="center">
 $\color{#C8E9E4}{ᡕᠵデᡁ᠊╾━&ensp;𝚃𝚁𝙴𝚅 / 𝚂𝙰𝚄𝙻&ensp;🃜🃚🃖🃁🂭🂺}$
@@ -44,4 +44,4 @@ $\color{#7DDEC2}{ᴍɪᴋᴇ&ensp;ᴇʜʀᴍᴀɴᴛʀᴀᴜᴛ&ensp;ʏᴜᴍᴇ
 </p>
 
 
-more info on my [╰┈➤ˎˊ˗strawpage](https://starsinnewmexico.straw.page/).
+$\color{#3C90A0}{more&ensp;info&ensp;here&ensp;}$ [┈➤ˎˊ˗strawpage](https://starsinnewmexico.straw.page/).
