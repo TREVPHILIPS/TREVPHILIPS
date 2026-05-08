@@ -45,3 +45,5 @@ $\color{#7DDEC2}{ᴍɪᴋᴇ&ensp;ᴇʜʀᴍᴀɴᴛʀᴀᴜᴛ&ensp;ʏᴜᴍᴇ
 
 
 $\color{#3C90A0}{more&ensp;info&ensp;here&ensp;}$ [┈➤ˎˊ˗strawpage](https://starsinnewmexico.straw.page/).
+
+$\color{#3C90A0}{sign&ensp;ata&ensp; pleaes&ensp;}$ [atabewk](https://saulgoodboy.atabook.org/)
