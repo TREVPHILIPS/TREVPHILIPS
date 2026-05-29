@@ -1,51 +1,41 @@
-  
-&ensp;&ensp;&ensp;&ensp;&ensp;&ensp; &ensp; $\color{#C8E9E4}{𑣲⋆}$&ensp;&ensp; ![](https://komarev.com/ghpvc/?username=TREVPHILIPS&color=7DDEC2&label=s'all+good,man!&style=flat-square) &ensp;&ensp; $\color{#C8E9E4}{⋆˚࿔}$
 
-<p align="center">
-$\color{#C8E9E4}{ᡕᠵデᡁ᠊╾━&ensp;𝚃𝚁𝙴𝚅 / 𝚂𝙰𝚄𝙻&ensp;🃜🃚🃖🃁🂭🂺}$
-</p>
+&ensp;&ensp;&ensp;&ensp; &ensp; $\color{#C8E9E4}{𑣲⋆}$&ensp;&ensp; ![](https://komarev.com/ghpvc/?username=TREVPHILIPS&color=7DDEC2&label=RESPECT+THE+BADGE!&style=flat-square) &ensp;&ensp; $\color{#C8E9E4}{⋆˚࿔}$
 
-<img width="3016" height="1998" alt="Untitled54_20260508075459" src="https://github.com/user-attachments/assets/753d9694-b0ba-45b6-b2e5-4429e31a7b0f" />
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=cinzel&duration=1000&pause=100&color=3C90A0&center=true&width=800&lines=respect+the+badge;he+earned+it+with+his+blood;fear+the+gun;your+sentence+may+be+death+because+;i+am+the+law" alt="Typing SVG" /></a>
 
-<p align="center">
-$\color{#C8E9E4}{ 𝒑𝒐𝒍𝒊𝒔𝒉 &ensp;/ &ensp; 𝘦𝘹𝘵𝘳𝘢𝘷𝘦𝘳𝘵𝘦𝘥 }$
-</p>
 
-<p align="center">
-$\color{#7DDEC2}{𝙢𝙚𝙩𝙖𝙡𝙝𝙚𝙖𝙙 &ensp; / &ensp;𝐦𝐨𝐯𝐢𝐞 𝐟𝐫𝐞𝐚𝐤 }$
-</p>
+<img align="left" width="100" height="245" src="https://github.com/user-attachments/assets/4cd2e97c-579b-4553-9a65-f737d8b39689"/>
 
-<p align="center">
-$\color{#3C90A0}{°˖➴𝐒𝐀𝐔𝐋&ensp;𝐆𝐎𝐎𝐃𝐌𝐀𝐍── .✦}$
-</p>
 
-<p align="center">
-$\color{#3C90A0}{𝖠𝖭𝖣}$
-</p>
+&ensp; &ensp; $\color{#C8E9E4}{ＴＲＥＶ / ＳＡＵＬˎˊ˗}$
 
-<p align="center">
-$\color{#3C90A0}{₊⊹𝚃𝚁𝙴𝚅𝙾𝚁&ensp;𝙿𝙷𝙸𝙻𝙸𝙿𝚂ˎˊ˗ }$
-</p>
+&ensp; &ensp; &ensp; $\color{#C8E9E4}{ 𝒑𝒐𝒍𝒊𝒔𝒉  /   𝘦𝘹𝘵𝘳𝘢𝘷𝘦𝘳𝘵𝘦𝘥 }$
 
-<p align="center">
-$\color{#3C90A0}{ ᴋɪɴɴɪᴇ .ᐟ}$
-</p>
+&ensp; &ensp; &ensp; &ensp; &ensp; &ensp; &ensp; &ensp; &ensp; &ensp; $\color{#7DDEC2}{𝙢𝙚𝙩𝙖𝙡𝙝𝙚𝙖𝙙}$
 
-<p align="center">
-$\color{#C8E9E4}{𝘣𝘳𝘦𝘢𝘬𝘪𝘯𝘨&ensp;𝘣𝘢𝘥&ensp;𝘢𝘯𝘥&ensp;}$
-</p>
+ &ensp; &ensp; &ensp; $\color{#7DDEC2}{𖦹&ensp; 𝐦𝐨𝐯𝐢𝐞 𝐟𝐫𝐞𝐚𝐤}$
 
-<p align="center">
-$\color{#C8E9E4}{𝘣𝘦𝘵𝘵𝘦𝘳&ensp;𝘤𝘢𝘭𝘭&ensp;𝘴𝘢𝘶𝘭&ensp;𝘧𝘢𝘯 }$
-</p>
+ &ensp; &ensp; &ensp; &ensp; &ensp; &ensp; &ensp; &ensp; &ensp; &ensp; $\color{#3C90A0}{𝚞𝚗𝚑𝚒𝚗𝚐𝚎𝚍}$
 
-<p align="center">
-$\color{#7DDEC2}{ᴍɪᴋᴇ&ensp;ᴇʜʀᴍᴀɴᴛʀᴀᴜᴛ&ensp;ʏᴜᴍᴇ&ensp;ᯓᡣ𐭩}$
+ &ensp; &ensp; &ensp; $\color{#3C90A0}{ ᵎᵎ &ensp;ɪᴍᴘᴜʟꜱɪᴠᴇ}$
+
+ &ensp; &ensp; &ensp; &ensp; &ensp; &ensp;&ensp;&ensp; $\color{#3C90A0}{ᵗᵉᵐᵖᵉʳᵃᵐᵉⁿᵗᵃˡ}$
+
+&ensp; &ensp; $\color{#C8E9E4}{ 𝗁𝖾𝖺𝗏𝗒}$ &ensp; &ensp; $\color{#7DDEC2}{𝙇𝙀𝙇𝘼𝙉𝘿 &ensp; 𝘾𝙊𝙔𝙇𝙀 &ensp; ⊹₊⟡⋆}$
+
+<p align="left">
+$\color{#C8E9E4}{ 𝖲𝖠𝖴𝖫 &ensp; 𝖦𝖮𝖮𝖣𝖬𝖠𝖭 &ensp; , &ensp; 𝖳𝖱𝖤𝖵𝖮𝖱 &ensp; 𝖯𝖧𝖨𝖫𝖨𝖯𝖲 }$
 </p>
 
 
-$\color{#3C90A0}{more&ensp;info&ensp;here&ensp;}$ [┈➤ˎˊ˗strawpage](https://starsinnewmexico.straw.page/).
+&ensp; &ensp; &ensp; &ensp; &ensp; &ensp; &ensp; &ensp; &ensp; &ensp; &ensp; &ensp; &ensp; &ensp; &ensp; &ensp; &ensp; &ensp; &ensp; &ensp; $\color{#C8E9E4}{ 𝚔𝚒𝚗𝚗𝚒𝚎 ! }$
 
-$\color{#3C90A0}{sign&ensp;ata&ensp; pleaes&ensp;}$ [atabewk](https://saulgoodboy.atabook.org/)
+<p align="center">
+$\color{#7DDEC2}{ᴍɪᴋᴇ ᴇʜʀᴍᴀɴᴛʀᴀᴜᴛ ʏᴜᴍᴇ ᯓᡣ𐭩}$
+</p>
 
-<img width="2311" height="1566" alt="inbound9148048141746512159" src="https://github.com/user-attachments/assets/d8b087ea-dcca-4121-9ab3-1a9d5e3b90e4" />
+<img width="3016" height="1998" alt="1000252081" src="https://github.com/user-attachments/assets/39f21122-daf3-41ea-b01b-fac154758f88" />
+
+&ensp; &ensp; $\color{#3C90A0}{𝙢𝙤𝙧𝙚 &ensp; 𝙞𝙣𝙛𝙤 &ensp; 𝙝𝙚𝙧𝙚 }$ [strawpage](https://starsinnewmexico.straw.page/)
+
+&ensp; $\color{#3C90A0}{𝒔𝒊𝒈𝒏 &ensp; 𝒇𝒐𝒓&ensp; 𝒂 &ensp; 𝒔𝒍𝒐𝒑𝒑𝒚&ensp; 𝒌𝒊𝒔𝒔}$ &ensp;[atabewk](https://saulgoodboy.atabook.org/)
