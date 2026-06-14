@@ -44,6 +44,6 @@ $\color{#3D6168}{ᴍɪᴋᴇ ᴇʜʀᴍᴀɴᴛʀᴀᴜᴛ ʏᴜᴍᴇ ᯓ
 <img width="2602" height="1438" alt="1000253382" src="https://github.com/user-attachments/assets/796c9d9c-5c30-4f50-93f1-4e124502e914" />
 
 
-&ensp; &ensp; $\color{#87C892}{𝙢𝙤𝙧𝙚 &ensp; 𝙞𝙣𝙛𝙤 &ensp; 𝙝𝙚𝙧𝙚 }$ [strawpage](https://starsinnewmexico.straw.page/)
+&ensp; &ensp; $\color{#87C892}{𝙢𝙤𝙧𝙚 &ensp; 𝙞𝙣𝙛𝙤 &ensp; 𝙝𝙚𝙧𝙚 }$ [strawpage](https://thesnitchlover.straw.page)
 
 &ensp; $\color{#67B88C}{𝒔𝒊𝒈𝒏 &ensp; 𝒇𝒐𝒓&ensp; 𝒂 &ensp; 𝒔𝒍𝒐𝒑𝒑𝒚&ensp; 𝒌𝒊𝒔𝒔}$ &ensp;[atabewk](https://saulgoodboy.atabook.org/)
