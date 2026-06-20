@@ -8,7 +8,7 @@
 </picture>
 
 <p align="center">
-$\color{#A29B27}{⋆}$ $\color{#A07A29}{ᴛʀᴇᴠ}$ $\color{#6B3E21}{/}$ $\color{#473E2D}{ꜱᴀᴜʟ}$ $\color{#3F3C2D}{.ᐟ}$
+$\color{#A29B27}{⋆}$ $\color{#A07A29}{ᴛʀᴇᴠ}$ $\color{#6B3E21}{/}$ $\color{#473E2D}{ꜱᴀᴜʟ}$ $\color{#3F3C2D}{⊹ ࣪ ˖}$
 </p>
 
 <p align="center">
@@ -16,7 +16,7 @@ $\color{#A29B27}{ₚₒₗᵢₛₕ&ensp; /&ensp; ₑₓₜᵣₐᵥₑᵣₜₑ
 </p>
 
 <p align="center">
-$\color{#A07A29}{⋆˚꩜｡ &ensp;𝙢𝙤𝙫𝙞𝙚 freak &ensp;/ &ensp;𝙢𝙚𝙩𝙖𝙡𝙝𝙚𝙖𝙙}$
+$\color{#A07A29}{⋆˚꩜｡ &ensp;𝙢𝙤𝙫𝙞𝙚 freak &ensp;/ &ensp;𝙢𝙚𝙩𝙖𝙡head}$
 </p>
 
 <p align="center">
@@ -28,7 +28,7 @@ $\color{#6B3E21}{𝘶𝘯𝘩𝘪𝘯𝘨𝘦𝘥 &ensp; , &ensp;𝘪𝘮𝘱�
 </picture>
 
 <p align="center">
-$\color{#A29B27}{ＨＥＡＶＹ}$
+$\color{#A29B27}{ ⤷  ＨＥＡＶＹ&ensp; !}$
 
  <p align="center">
 $\color{#A07A29}{゛ 𝙇𝙀𝙇𝘼𝙉𝘿 &ensp; 𝘾𝙊𝙔𝙇𝙀 ˎˊ˗}$
@@ -45,13 +45,13 @@ $\color{#473E2D}{ＫＩＮＮＩＥ}$
 </picture>
 
 <p align="center">
-$\color{#A29B27}{ᴛʜᴇ &ensp; ꜱɴɪᴛᴄʜ}$
+$\color{#A29B27}{ᴛʜᴇ &ensp; ꜱɴɪᴛᴄʜ &ensp; ᯓ★}$
 
 <p align="center">
 $\color{#A07A29}{ａｎｄ}$
 
 <p align="center">
-$\color{#6B3E21}{ᴍɪᴋᴇ &ensp; ᴇʜʀᴍᴀɴᴛʀᴀᴜᴛ}$
+$\color{#6B3E21}{⋆.˚ &ensp; ᴍɪᴋᴇ &ensp; ᴇʜʀᴍᴀɴᴛʀᴀᴜᴛ}$
 
 <p align="center">
 $\color{#473E2D}{ｙｕｍｅ}$
