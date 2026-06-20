@@ -41,6 +41,10 @@ $\color{#6B3E21}{𝘛𝘙𝘌𝘝𝘖𝘙 &ensp;𝘗𝘏𝘐𝘓𝘐𝘗𝘚 &en
 $\color{#473E2D}{ＫＩＮＮＩＥ}$
 
 <picture>
+  <img alt="Logo" src="https://i.postimg.cc/wjqYLjHg/Untitled78-Restored-20260620222533.png">
+</picture>
+
+<picture>
   <img alt="Logo" src="https://i.postimg.cc/zvcKjMhK/Untitled78-Restored-20260620204813.png">
 </picture>
 
