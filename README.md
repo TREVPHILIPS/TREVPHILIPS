@@ -57,3 +57,7 @@ $\color{#6B3E21}{⋆.˚ &ensp; ᴍɪᴋᴇ &ensp; ᴇʜʀᴍᴀɴᴛʀᴀᴜᴛ}
 $\color{#473E2D}{ｙｕｍｅ}$
 <picture>
 
+<picture>
+  <img alt="Logo" src="https://i.postimg.cc/TP00zT5N/Untitled78-Restored-20260620221243.png">
+</picture>
+
