@@ -8,7 +8,7 @@
 </picture>
 
 <p align="center">
-$\color{#8a525e}{⋆}$ $\color{#6d525e}{ᴛʀᴇᴠ}$ $\color{#53525e}{/}$ $\color{#3d525e}{ꜱᴀᴜʟ}$ $\color{#2a525e}{⊹ ࣪ ˖}$
+$\color{#8a525e}{⋆}$ $\color{#6d525e}{ᴛʀᴇᴠ}$ $\color{#53525e}{/}$ $\color{#3d525e}{ʟᴇʟᴀɴᴅ}$ $\color{#2a525e}{⊹ ࣪ ˖}$
 </p>
 
 <p align="center">
@@ -36,7 +36,7 @@ $\color{#6d525e}{゛ᴘʀᴇ &ensp;ᴍᴜʀᴋᴏꜰꜰ &ensp; 𝙇𝙀𝙇𝘼�
 </p>
 
 <p align="center">
-$\color{#53525e}{𝘛𝘙𝘌𝘝𝘖𝘙 &ensp;𝘗𝘏𝘐𝘓𝘐𝘗𝘚 &ensp; , &ensp; 𝘚𝘈𝘜𝘓 &ensp;𝘎𝘖𝘖𝘋𝘔𝘈𝘕}$
+$\color{#53525e}{𝘛𝘙𝘌𝘝𝘖𝘙 &ensp;𝘗𝘏𝘐𝘓𝘐𝘗𝘚 &ensp; , &ensp; 𝘛𝘏𝘌 &ensp;𝘞𝘈𝘙𝘋𝘌𝘕 }$
 
 <p align="center">
 $\color{#3d525e}{ＫＩＮＮＩＥ}$
