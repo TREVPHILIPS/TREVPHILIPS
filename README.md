@@ -1,40 +1,44 @@
-&ensp;&ensp; &ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;![](https://komarev.com/ghpvc/?username=TREVPHILIPS&color=9F314C&label=SUCH+A+GOOD+COP&style=flat-square) 
+          ![](https://komarev.com/ghpvc/?username=TREVPHILIPS&color=427D7C&label=SUCH+A+GOOD+COP&style=flat-square) 
 
 
-<img src="https://i.postimg.cc/VvFTsfVf/Untitled152-20260902221021.png" align="center">
+<img src="https://i.postimg.cc/9fnwLLW6/Untitled159-20260910231731.png" align="center">
 
 
 
-&ensp; &ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp; $\color{#9F314C}{ᴛʀ}$ $\color{#915154}{ᴇᴠ}$ $\color{#9A8D70}{ / }$ $\color{#8B7961}{ʟᴇʟ}$ $\color{#876E5B}{ᴀɴᴅ}$
+
+$\color{#427D7C}{ᴛʀ}$ $\color{#597F7F}{ᴇᴠ}$ $\color{#6A8386}{/}$ $\color{#7F8991}{ʟᴇ}$ $\color{#8D949F}{ʟᴀ}$ $\color{#9DA0AF}{ɴᴅ}$ $\color{#9DA0AF}{&ensp; &ensp;&ensp;(˶ˆᗜˆ˵)}$ 
 
 
-<img src="https://i.postimg.cc/ncpby5Ph/Untitled152-20260902223824.png" width="170" align="right">
 
 
-$\color{#9F314C}{ᴘᴏʟɪꜱʜ / }$
-$\color{#9F314C}{ &ensp; ᴇxᴛʀᴀᴠᴇʀᴛᴇᴅ }$
-$\color{#915154}{ᴍᴇᴛᴀʟʜᴇᴀᴅ /}$
-$\color{#915154}{&ensp;ᴀɴᴀʀᴄʜɪꜱᴛ}$
-<img src="https://i.postimg.cc/wBp9BvWq/Untitled152-20260902224321.png" width="110">
-$\color{#9A8D70}{ᴜɴʜɪɴɢᴇᴅ  / }$
-$\color{#9A8D70}{&ensp; ɪᴍᴘᴜʟꜱɪᴠᴇ}$
-$\color{#8B7961}{ᴘᴇʀᴠᴇʀᴛᴇᴅ /}$
-$\color{#8B7961}{&ensp;ᴠɪʟᴇ}$
+$\color{#427D7C}{𝐏𝐎𝐋𝐈𝐒𝐇  /  𝐄𝐗𝐓𝐑𝐀𝐕𝐄𝐑𝐓𝐄𝐃 }$
+$\color{#597F7F}{𝐌𝐄𝐓𝐀𝐋𝐇𝐄𝐀𝐃  /  𝐀𝐍𝐀𝐑𝐂𝐇𝐈𝐒𝐓}$
+$\color{#6A8386}{𝐈𝐌𝐏𝐔𝐋𝐒𝐈𝐕𝐄  .  𝐔𝐍𝐇𝐈𝐍𝐆𝐄𝐃 }$
+$\color{#7F8991}{𝐏𝐄𝐑𝐕𝐄𝐑𝐓𝐄𝐃  .  𝐕𝐈𝐋𝐄}$
+$\color{#8D949F}{𝐒𝐀𝐃𝐎-𝐌𝐀𝐒𝐎𝐂𝐇𝐈𝐒𝐓𝐈𝐂   𝐅𝐑𝐄𝐀𝐊}$
 
-<img src="https://i.postimg.cc/gJ6Jw5VH/Untitled152-Restored-20260902235154.png" align="center">
+<img src="https://i.postimg.cc/SsVSZs7q/Untitled159-20260911000933.png" align="center">
 
 
-<img src="https://i.postimg.cc/GmhmP9FS/IMG-20260903-000035.png" width="170" align="left">
+$\color{#427D7C}{𝐇𝐄𝐀𝐕𝐘 &ensp;}$ $\color{#597F7F}{𝐏𝐑𝐄-𝐌𝐔𝐑𝐊𝐎𝐅𝐅}$
 
-$\color{#9F314C}{&ensp; ʜᴇᴀᴠʏ}$
+$\color{#6A8386}{𝐋𝐄𝐋𝐀𝐍𝐃}$ $\color{#7F8991}{𝐂𝐎𝐘𝐋𝐄}$ $\color{#8D949F}{&ensp;𝐊𝐈𝐍𝐍𝐈𝐄}$ $\color{#9DA0AF}{★★★☆☆}$
 
-$\color{#915154}{ᴘʀᴇ-ᴍᴜʀᴋᴏꜰꜰ}$
 
-$\color{#9A8D70}{ʟᴇʟᴀɴᴅ}$
 
-$\color{#9A8D70}{&ensp; &ensp; &ensp; &ensp; ᴄᴏʏʟᴇ}$
+<img src="https://i.postimg.cc/DwCcKdvY/Untitled159-20260910234558.png" align="center">
 
-$\color{#876E5B}{&ensp;ᴋɪɴɴɪᴇ}$
-<img src="https://i.postimg.cc/SNmSqjvr/Untitled152-Restored-20260902235333.png" width="110">
 
-<img src="https://i.postimg.cc/FK0sb6Ch/Untitled152-Restored-20260903002645.png">
+
+
+
+
+
+
+
+
+
+
+
+
+
