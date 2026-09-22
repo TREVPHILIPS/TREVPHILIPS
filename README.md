@@ -1,9 +1,14 @@
 <div align ="center">
 <img src="https://i.postimg.cc/Nj1N7ghC/Untitled163-20260918182109.png"height=20> <img src="https://hits.sh/github.com/TREVPHILIPS/hits.svg?username=TREVPHILIPS&label=GOOD+COP&extraCount=3893&style=flat-square&color=70809F&labelColor=BDB1AE"> <img src="https://i.postimg.cc/Nj1N7ghC/Untitled163-20260918182109.png"height=20>
 
-  
-<div align ="center">
+
+
+
+
+  <div align ="center">
 <img src="https://i.postimg.cc/QdszzBJ6/Untitled163-20260918175802.png">
+
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Roboto+Serif&duration=800&pause=500&color=c4c3c3&center=true&width=450&height=40&lines=I'm+the+new+folk+hero+;of+the+Ku+Klux+Klan+;my+cop+friends+think+that's+fine;You+can+get+away+with+murder+;if+you've+got+a+badge+;I+fought+the+law+and;I+won;I+fought+the+law+and+;I+won+" alt="Typing SVG" /></a>
 
 $\color{#74819f}\text{ᴛʀ}$ $\color{#898da1}\text{ᴇᴠ}$ $\color{#aba0a0}\text{/ ʟᴇ}$ $\color{#b9aeac}\text{ʟᴀ}$ $\color{#c4c3c3}\text{ɴᴅ}$        
 <img src="https://i.postimg.cc/8505Kg84/IMG-20260918-191816.png" height=30>
