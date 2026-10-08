@@ -6,7 +6,7 @@
 
 
   <div align ="center">
-<img src="https://i.postimg.cc/vmdbrqCP/Untitled172-20261008155338.png">
+<img src="https://i.postimg.cc/BvRCmzx6/Untitled172-Restored-20261008193827.png">
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Roboto+Serif&duration=800&pause=500&color=9E9689&center=true&width=450&height=40&lines=I'm+the+new+folk+hero+;of+the+Ku+Klux+Klan+;my+cop+friends+think+that's+fine;You+can+get+away+with+murder+;if+you've+got+a+badge+;I+fought+the+law+and;I+won;I+fought+the+law+and+;I+won+" alt="Typing SVG" /></a>
 
