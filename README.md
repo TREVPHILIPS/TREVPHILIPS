@@ -11,7 +11,7 @@
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Roboto+Serif&duration=800&pause=500&color=9E9689&center=true&width=450&height=40&lines=I'm+the+new+folk+hero+;of+the+Ku+Klux+Klan+;my+cop+friends+think+that's+fine;You+can+get+away+with+murder+;if+you've+got+a+badge+;I+fought+the+law+and;I+won;I+fought+the+law+and+;I+won+" alt="Typing SVG" /></a>
 
 $\color{#9E9689}\text{ᴛʀ}$ $\color{#9B8F83}\text{ᴇᴠ}$ $\color{#988982}\text{/ ʟᴇ}$ $\color{#6E7275}\text{ʟᴀ}$ $\color{#6A6D74}\text{ɴᴅ}$        
-<img src="https://i.postimg.cc/8PWsv0Cf/Untitled172-Restored-20261008194129.png" height=30>
+<img src="https://i.postimg.cc/6p3SSDGW/Untitled172-Restored-20261008194352.png" height=30>
 
 $$\color{#9E9689}\text{𝗽𝗼𝗹𝗶𝘀𝗵 / 𝗲𝘅𝘁𝗿𝗮𝘃𝗲𝗿𝘁𝗲𝗱}$$
 $$\color{#9B8F83}\text{𝗺𝗲𝘁𝗮𝗹𝗵𝗲𝗮𝗱 / 𝗮𝗻𝗮𝗿𝗰𝗵𝗶𝘀𝘁 }$$
